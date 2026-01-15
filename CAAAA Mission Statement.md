@@ -1,0 +1,5 @@
+The California Asian American Attorneys Association (CAAAA) is dedicated to empowering Asian American legal professionals and promoting justice, equality, and inclusion within the legal community and beyond. We strive to advance the professional growth, leadership, and visibility of Asian American attorneys across California through mentorship, advocacy, education, and community engagement.
+
+CAAAA serves as a unified voice for Asian American attorneys, fostering collaboration across generations and disciplines, protecting the rights of underrepresented communities, striving to eliminate prejudice within the career development, educational institutions, and the justice system, and upholding the highest standards of ethics and professionalism.
+
+Through our programs, partnerships, and public service initiatives, we seek to build bridges between cultures, strengthen the rule of law, and inspire future generations of lawyers to lead with integrity, courage, and compassion.
